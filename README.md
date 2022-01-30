@@ -72,4 +72,6 @@ No, take me home
 Home where I belong
 I can't take it anymore
 Fonte: Musixmatch
+
+
 Compositores: Aksnes Aurora / Skylstad Magnus Aserud
