@@ -1,4 +1,6 @@
-# Aurora 
+# Add a readme for the fisrt time
+
+## Aurora
 
 ### Runaway
 I was listenin' to the ocean
